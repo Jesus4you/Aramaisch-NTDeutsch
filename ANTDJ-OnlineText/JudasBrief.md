@@ -38,8 +38,9 @@ kaspa:qz37adqfvfrlae29mgnxjgvfeulcz2t3d85h5fyutzgzzsqdsfglv328jhnmm
 ---------------------
 Hier wird der aktuelle Stand des Übersetzungsprojekts veröffentlicht und
  übersetzte Teile als PDF zum Gratis Download angeboten:
-https://jesus4you.ch/content/aramaeisch-urtext-deutsch-nt/ 
-Judasbrief
+https://jesus4you.ch/content/aramaeisch-urtext-deutsch-nt/   
+
+*Judasbrief*  
 
 1] Judas, ein Diener von Jesus, und ein Bruder von Jakobus,i an die von Gott dem Vater Berufenen aus den Nationen,ii welche in Jesus dem Messias bewahrt werden.
 2] Barmherzigkeit und Frieden und Liebe werde euch vervielfacht!
