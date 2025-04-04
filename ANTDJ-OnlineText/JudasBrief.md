@@ -40,7 +40,7 @@ Hier wird der aktuelle Stand des Übersetzungsprojekts veröffentlicht und
  übersetzte Teile als PDF zum Gratis Download angeboten:
 https://jesus4you.ch/content/aramaeisch-urtext-deutsch-nt/   
 
-***Judasbrief***  
+**Judasbrief**  
 
 1] Judas, ein Diener von Jesus, und ein Bruder von Jakobus,i an die von Gott dem Vater Berufenen aus den Nationen,ii welche in Jesus dem Messias bewahrt werden.
 2] Barmherzigkeit und Frieden und Liebe werde euch vervielfacht!
@@ -82,9 +82,10 @@ durch Jesus, den Messias, unseren Herrn,
 seine Pracht & Herrlichkeit geht voraus in Freude.
 
 Ihm sei die Herrlichkeit, die Herrschaft, die Ehre und die Majestät, nun und für alle Zeitalter. 
-Amen.
+Amen.  
+  
 
-Zusammenfassung Judasbrief:
+**Zusammenfassung Judasbrief:**
 Wir sollen für den anfänglich vollständig überlieferten Glauben kämpfen.
 Böse Menschen infiltrierten christliche Kreise und verleugnen Jesus unsern  Herrn und Gott den Vater durch: 
 Fleischlichkeit, ein Leben in Begierden, Irrlehren, Unverständnis, Unwissenheit, Lästerung, Missachtung der Herrschaft und Herrlichkeit, Rebellion, Unglaube, lockeren Umgang mit Sünde, Böses Herz, unreine Träume, keine Disziplin, Hedonismus, Unzucht, Sodomie, Verseuchung mit fremden Fleisch, heute ist dies auch mRNA Verseuchung, Geldgier, Falschheit und Schmeicheln für Profit, Kompromisse mit dem Wort Gottes, böse Worte, Murren & Klagen, Spötter, ohne Kraft, gefangen in animalischen Begierden, rein seelisch, natürlich, ohne den Geist. 
