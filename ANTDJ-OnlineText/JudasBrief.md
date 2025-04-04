@@ -1,4 +1,4 @@
-Der Judasbrief
+***Der Judasbrief***
 
 Verfasser: Judas, 
 Bruder des Jakobus (Jakobusbrief), 
@@ -10,7 +10,7 @@ Thema:
 Kampf für den vollständig überlieferten, 
 heiligen  Glauben
 
-Judasbrief
+*Judasbrief*  
 
 Dieses Buch: Der Judasbrief ist Teil von: 
 Original Aramäisch Peshitta 
@@ -40,7 +40,7 @@ Hier wird der aktuelle Stand des Übersetzungsprojekts veröffentlicht und
  übersetzte Teile als PDF zum Gratis Download angeboten:
 https://jesus4you.ch/content/aramaeisch-urtext-deutsch-nt/   
 
-*Judasbrief*  
+***Judasbrief***  
 
 1] Judas, ein Diener von Jesus, und ein Bruder von Jakobus,i an die von Gott dem Vater Berufenen aus den Nationen,ii welche in Jesus dem Messias bewahrt werden.
 2] Barmherzigkeit und Frieden und Liebe werde euch vervielfacht!
