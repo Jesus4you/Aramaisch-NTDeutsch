@@ -23,23 +23,8 @@ Lucien Jamin
 
 Dank teilweise erweitertem (amplifiziertem) Text, den vielen wertvollen erklärenden Fussnoten und Parallelstellen ist dieses Neue Testament auch sehr gut als schlichte, klare unkomplizierte lebendige, geistbetonte Studienbibel geeignet.
 
- © Copyright Lucien Jamin
-Darf unverändert und mit Quellenangabe nur vollständig mit Vorwort, Fussnoten und Nachwort, für nicht kommerzielle Zwecke kopiert und vervielfältigt werden!
-Der Bibeltext darf für Predigten aller Art verwendet und zitiert werden.
-Zitierte Bibelvers-Zitate sollen das Kürzel für diese Übersetzung haben: 
-ANTD oder ANTD-J   ( Aram. NT  Deutsch Jamin)
-Kontakt: Telegram:  https://t.me/SteinSchleuder  X: x.com/Jesus4you_ch
-Kanal: https://t.me/KingJesusNews  Website:  http://jesus4you.ch
-Du kannst finanziell bei diesem wichtigen Übersetzungs-Projekt mithelfen:
-https://paypal.me/pulsar oder mit https://www.buymeacoffee.com/LJamin 
-Cryptos: Monero: 45kiETRcypfWDGN9wpyuv9Zr4HACJLhU9TYeRvLcN8FyTtLwbjA3VWGWPfojezornmMS53jaWzznRMZmFMnLsibsAAmY2iX
-Kaspa $Kas oder Mambo Coins wie $Jesus $Yeshua $Franc, $Gold auf:
-kaspa:qz37adqfvfrlae29mgnxjgvfeulcz2t3d85h5fyutzgzzsqdsfglv328jhnmm
----------------------
-Hier wird der aktuelle Stand des Übersetzungsprojekts veröffentlicht und
- übersetzte Teile als PDF zum Gratis Download angeboten:
-https://jesus4you.ch/content/aramaeisch-urtext-deutsch-nt/   
-
+ © Copyright Lucien Jamin  
+ 
 **Judasbrief**  
 
 1] Judas, ein Diener von Jesus, und ein Bruder von Jakobus,i an die von Gott dem Vater Berufenen aus den Nationen,ii welche in Jesus dem Messias bewahrt werden.
@@ -177,7 +162,24 @@ Dies ist der Schlüsselvers vom Judasbrief. Wir bewahren den heiligen Glauben da
 26) Vers 22: Und einige von denen, greift sie aus dem Feuer.
 Wie greifen wir Menschen aus dem Feuer? Da Judas uns das nicht sagt, ausser dass wir dabei vorsichtig sein sollen, nicht selber beschmutzt zu werden, lasst uns im Gebet darüber nachdenken und um Weisheit und Führung bitten, wie wir Menschen aus dem Feuer retten können. Z.B. diesen Judasbrief ausdrucken und weitergeben oder auf Socialmedien teilen mit einer Empfehlung. Aber insbesondere dadurch, dass wir uns authentisch um Mitmenschen kümmern, für sie beten, Gutes tun, und uns nicht scheuen, in Liebe die Wahrheit zu sagen. Wenn sie krank sind, im Glauben die Hände auflegen und Heilung im Namen Jesus befehlen. Wenn sie in Not sind, materiell helfen, und so ihr Herz gewinnen und für Jesus öffnen.
 
-
+-.-.-.-.-.-.-.-.-.-.-.-.-  
+.-.-.-.-.-.-.-.-.-.-.-.-.  
+ © Copyright Lucien Jamin
+Darf unverändert und mit Quellenangabe nur vollständig mit Vorwort, Fussnoten und Nachwort, für nicht kommerzielle Zwecke kopiert und vervielfältigt werden!
+Der Bibeltext darf für Predigten aller Art verwendet und zitiert werden.
+Zitierte Bibelvers-Zitate sollen das Kürzel für diese Übersetzung haben: 
+ANTD oder ANTD-J   ( Aram. NT  Deutsch Jamin)
+Kontakt: Telegram:  https://t.me/SteinSchleuder  X: x.com/Jesus4you_ch
+Kanal: https://t.me/KingJesusNews  Website:  http://jesus4you.ch
+Du kannst finanziell bei diesem wichtigen Übersetzungs-Projekt mithelfen:
+https://paypal.me/pulsar oder mit https://www.buymeacoffee.com/LJamin 
+Cryptos: Monero: 45kiETRcypfWDGN9wpyuv9Zr4HACJLhU9TYeRvLcN8FyTtLwbjA3VWGWPfojezornmMS53jaWzznRMZmFMnLsibsAAmY2iX
+Kaspa $Kas oder Mambo Coins wie $Jesus $Yeshua $Franc, $Gold auf:
+kaspa:qz37adqfvfrlae29mgnxjgvfeulcz2t3d85h5fyutzgzzsqdsfglv328jhnmm
+---------------------
+Hier wird der aktuelle Stand des Übersetzungsprojekts veröffentlicht und
+ übersetzte Teile als PDF zum Gratis Download angeboten:
+https://jesus4you.ch/content/aramaeisch-urtext-deutsch-nt/   
 
 
 
