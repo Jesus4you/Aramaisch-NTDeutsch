@@ -18,7 +18,7 @@ Bruders Phillipus.
 denn sie betrachteten ihn als Propheten.
 
 6\] Als der Geburtstag von Herodes kam, tanzte die Tochter[^4] der
-Herodias vor den Gästen, und es gefiel Herodes.
+Herodias' vor den Gästen, und es gefiel Herodes.
 
 7\] Deshalb schwor er ihr mit einem Eid, dass er ihr alles, was sie
 verlangt, geben würde. (Esth. 5,6)[^5] .
